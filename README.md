@@ -17,7 +17,7 @@ Aplikasi memiliki beberapa fitur diantarnya
 - 
 
 
-### Premium Partners
+### Profile Creator
 
 - **[Hasudungan Sitorus](hhttps://x.com/jung_doeng)**
 
